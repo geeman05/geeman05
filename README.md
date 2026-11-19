@@ -1,5 +1,5 @@
 ## Hi there 👋
-## Im Geeman05 and my purpouse is to give and teach how to give women a G-Spot orgasm.
+## Im Geeman05 and my purpouse is to give women and teach men how to give a G-Spot orgasm.
 
 <!--
 **geeman05/geeman05** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
